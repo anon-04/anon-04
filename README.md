@@ -1,11 +1,11 @@
 ##
 
 <p align="center">
-hellow i'm 04! i can also go by west, anon, or bernd!
+hellow i'm 04 i can also go by west, anon, or bernd
 </p>
 
 <p align="center">
-i'm canadian and half filipino!
+i'm canadian and half filipino
 </p>
 
 <p align="center">
