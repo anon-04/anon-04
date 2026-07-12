@@ -12,7 +12,7 @@ i'm canadian and half filipino
   <img src="https://github.com/Militates/Militates/blob/main/Screenshot%202026-07-07%20181145.png" alt="" width="350">
 </p>
 
-><p align="center"><i>my screenshot btw</i></p>
+><p align="center"><i>my screenshot</i></p>
 
 <p align="center">i relaly like finn mccool block tales, toxicshades/poison pitcher, countryhumans/countryballs, history, countries (in general) and creatures of sonaria ok? okay</p>
 
