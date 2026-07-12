@@ -14,7 +14,7 @@ i'm canadian and half filipino
 
 ><p align="center"><i>my screenshot btw</i></p>
 
-<p align="center">i relaly like finn mccool block tales, toxicshades/poison pitcher, countryhumans/countryballs, history, contries (in general) and creatures of sonaria ok? okay</p>
+<p align="center">i relaly like finn mccool block tales, toxicshades/poison pitcher, countryhumans/countryballs, history, countries (in general) and creatures of sonaria ok? okay</p>
 
 ><p align="center"> umm ua i wrote that one toxicshades necro fic on ao3</p>
 
